@@ -1,1 +1,0 @@
-# Varunish_Sample
